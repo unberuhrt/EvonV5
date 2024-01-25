@@ -1,1 +1,1 @@
-This is Evon executor version 5 modified by me.This type of Evon Works both on roblox in the browser and on the microsoft store. If evon closes when you run it, it means that you have missing files from windows. 𝙄𝙏 𝙒𝙄𝙇𝙇 *𝙉𝙊𝙏* 𝙍𝙐𝙉 𝙊𝙉 𝙑𝙄𝙍𝙏𝙐𝘼𝙇 𝙈𝘼𝘾𝙃𝙄𝙉𝙀𝙎
+This is Evon executor version 5 modified by me.This type of Evon Works both on roblox in the browser and on the microsoft store. If evon closes when you run it, it means that you have missing files from windows.
